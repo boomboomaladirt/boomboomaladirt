@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @boomboomaladirt
+- 👀 I’m interested in animating
+- 🌱 I’m currently learning coding
+- 💞️ I’m looking to collaborate on coding
+- 📫 How to reach me discord boomboomdirtman#0106
